@@ -1,2 +1,4 @@
 # Diagnostics-Channel
-[Schrodingers Box](https://www.youtube.com/c/SchrodingersBox)
+
+# Top.Favorite!:
+## [Schrodingers Box](https://www.youtube.com/c/SchrodingersBox)
