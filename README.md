@@ -8,3 +8,4 @@
 ## Playlists:
 - [index:](https://www.youtube.com/c/SchrodingersBox/playlists)
 - [Understanding Automotive Concepts](https://www.youtube.com/playlist?list=PLKQS2gNIDMghurUViayzngEmkyv-r4NTg)
+- [Diagnosis and Understanding Series](https://www.youtube.com/playlist?list=PLKQS2gNIDMggela-mTBPpzT9P2TeKCgXb)
